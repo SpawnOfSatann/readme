@@ -25,9 +25,21 @@ Aroace⠀⠀. minor⠀⠀⠀𓈒 ✚
 
 - ⊹ ࣪ ˖ 　﹒ 　 　𓏹ㅤ
 
- music⠀. ⠀lvr⠀ 𓏲𝄢
+music⠀. ⠀lvr⠀ 𓏲𝄢
+
  
-more in progress boo....
+✿◞◟)⠀⠀｡⠀⠀And One
+⠀
+
+MSI,⠀n others⠀⠀﹒⠀⠀◞
+
+
+- ⊹ ࣪ ˖ 　﹒ 　 　𓏹
+
+atabook⠀⠀𝜗𝜚
+
+(still in progress)
+
 
 
 
