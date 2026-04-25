@@ -14,33 +14,4 @@ ${\color{#F6EAC2}\textsf{Leiser als normal,}}$
 ${\color{#F6EAC2}\textsf{Doch viel lauter als das letze Mal„}}$
 
 
-- ⊹ ࣪ ˖ 　﹒ 　 　𓏹ㅤ
-
-Rowan⠀⠀⠀⠀ℐ⠀⠀⠀˘ 
-
-˛⠀⠀⠀ᵒʳ⠀⠀Ephraim⠀²
-
-Aroace⠀⠀. minor⠀⠀⠀𓈒 ✚
-
-
-- ⊹ ࣪ ˖ 　﹒ 　 　𓏹ㅤ
-
-music⠀. ⠀lvr⠀ 𓏲𝄢
-
- 
-✿◞◟)⠀⠀｡⠀⠀And One
-⠀
-
-MSI,⠀n others⠀⠀﹒⠀⠀◞
-
-
-- ⊹ ࣪ ˖ 　﹒ 　 　𓏹
-
-atabook⠀⠀𝜗𝜚
-
-(still in progress)
-
-
-
-
 ![image](https://github.com/SpawnOfSatann/prueba1/blob/d7986cb5232c8be62e459c8ff3eea96dcb8f0bed/tumblr_187cc3ef7a96ccd5959a0be436c770ef_d108899e_1280.png)
